@@ -1,4 +1,4 @@
-INFORMATION RESOURCES AND IT PROJECT MANAGEMENT - Green Vive Cafe Project Proposal
+INFORMATION RESOURCES AND IT PROJECT MANAGEMENT - Green Vibe Cafe Project Proposal
 
 Green Vibe Cafe is the response to Cal State Fullerton's ever-increasing demand for
 greater variety. Since the inception of time, students have consistently sought out an optimal
